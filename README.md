@@ -21,7 +21,8 @@ Creator DuckyOnDatQuack#9588
 
 BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME OR JOIN MY SERVER THEN ASK I WILL HOST IT IF U NEED TO USE IT 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ  𝓓𝓾𝓬𝓴𝔂'𝓼 𝓢𝓱𝓸𝓹
+ㅤㅤㅤㅤ𝓓𝓾𝓬𝓴𝔂'𝓼 𝓢𝓱𝓸𝓹
+
 ㅤ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 
 ➤ 𝙈𝙪𝙘𝙝 𝙂𝙞𝙫𝙚𝙬𝙖𝙮𝙨
