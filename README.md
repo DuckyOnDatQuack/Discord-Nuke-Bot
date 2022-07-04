@@ -18,3 +18,4 @@ nuke Bot photo
 ![image](https://user-images.githubusercontent.com/106602514/177009414-189fa27f-d03e-4187-8b51-f14248d924be.png)
 
 Creator DuckyOnDatQuack#9588
+BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME ON DISCORD I WILL HOST IT
