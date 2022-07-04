@@ -1,6 +1,7 @@
 # Discord Nuke Bot
 A simple Nuke Bot (No Need To Download Anything)
 
+BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME OR JOIN MY SERVER THEN ASK I WILL HOST IT IF U NEED TO USE IT 
 
 Bot invite: https://discord.com/api/oauth2/authorize?client_id=980543555074404432&permissions=8&scope=bot
 
