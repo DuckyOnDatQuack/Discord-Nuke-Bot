@@ -37,5 +37,6 @@ BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME OR JOIN MY S
 ➤ 𝐂𝐡𝐞𝐚𝐩 𝐒𝐩𝐨𝐭𝐢𝐟𝐲 𝐩𝐫𝐞𝐦𝐢𝐮𝐦
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤＪｏｉｎ Ｎｏｗ!
-@everyone @here https://discord.gg/jCcBcK5hz8
-https://share.creavite.co/FA3MN86pYAoAyZWa.gif
+
+https://discord.gg/jCcBcK5hz8
+
