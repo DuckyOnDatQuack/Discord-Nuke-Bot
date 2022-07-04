@@ -19,4 +19,23 @@ nuke Bot photo
 
 Creator DuckyOnDatQuack#9588
 
-BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME ON DISCORD I WILL HOST IT
+BOT IS OFFLINE WILL BE ONLINE 24/7 IF YOU WISH TO USE THE BOT DM ME OR JOIN MY SERVER THEN ASK I WILL HOST IT IF U NEED TO USE IT 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ  𝓓𝓾𝓬𝓴𝔂'𝓼 𝓢𝓱𝓸𝓹
+ㅤ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
+
+➤ 𝙈𝙪𝙘𝙝 𝙂𝙞𝙫𝙚𝙬𝙖𝙮𝙨
+
+➤ 𝐂𝐨𝐝 𝐌𝐨𝐝𝐝𝐞𝐝 𝐚𝐜𝐜𝐬
+
+➤ 𝙈𝙪𝙘𝙝 𝙑𝙤𝙪𝙘𝙝𝙚𝙨
+
+➤ 𝙈𝙪𝙘𝙝 𝙋𝙖𝙧𝙩𝙣𝙚𝙧𝙨
+
+➤ 𝗦𝘁𝗿𝗲𝗮𝗺𝗶𝗻𝗴 𝗔𝗰𝗰𝘀
+
+➤ 𝐂𝐡𝐞𝐚𝐩 𝐒𝐩𝐨𝐭𝐢𝐟𝐲 𝐩𝐫𝐞𝐦𝐢𝐮𝐦
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤＪｏｉｎ Ｎｏｗ!
+@everyone @here https://discord.gg/jCcBcK5hz8
+https://share.creavite.co/FA3MN86pYAoAyZWa.gif
